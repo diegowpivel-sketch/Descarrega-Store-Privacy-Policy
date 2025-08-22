@@ -1,4 +1,5 @@
-Descarrega-Store-Privacy-Policy
+Descarrega
+
 Privacy Policy for Descarrega digital store Privacy Policy
 ==============
 
